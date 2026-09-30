@@ -212,4 +212,4 @@ Candy Crush Saga is available as a full free version for Windows, including all 
 Don't miss out on the fun! Download Candy Crush Saga today and dive into the sweetest puzzle adventure!
 
 ---
-**Last updated:** 2026-09-29 22:54:39 UTC
+**Last updated:** 2026-09-30 01:57:33 UTC
